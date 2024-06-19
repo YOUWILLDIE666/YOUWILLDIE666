@@ -1,0 +1,7 @@
+- 👋 Hi, I’m `YOU WILL DIE`
+- 👀 I’m interested in `YOU WILL DIE`
+- 🌱 I’m currently learning `YOU WILL DIE`
+- 💞️ I’m looking to collaborate on `YOU WILL DIE`
+- 📫 How to reach me `YOU WILL DIE`
+- 😄 Pronouns: `YOU WILL DIE`
+- ⚡ Fun fact: **YOU WILL DIE.**
