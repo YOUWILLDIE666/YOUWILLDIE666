@@ -1,1 +1,1 @@
-![image](https://camo.githubusercontent.com/fe3bfd2c78cbea3e2c6fb92b60f5b7c646cb35aeb18e1168b0e346574dc475fa/68747470733a2f2f796f7577696c6c6469652e6e656f6369746965732e6f72672f64756d702e706e67)
+<img src="https://cdn.discordapp.com/emojis/1104714313077370881.webp?size=96&quality=lossless">
